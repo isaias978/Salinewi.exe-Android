@@ -1,2 +1,2 @@
-# Salinewi.exe killer bastu-Android removal disky and monoxide.exe
-This is Safe versio by Sketchware pro
+# Salinewi.exe killer bastu-Android removal disky monoxide.exe And DONTRUN
+This is Safe & Dectructive Version by Sketchware pro
